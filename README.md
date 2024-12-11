@@ -6,12 +6,12 @@
 plane will fly before it disappears. The plane takes off, and the
 multiplier increases as it flies. Players can cash out their winnings at
 any time before the plane crashes, or they can risk it and try to win a
-higher multiplier.
+higher multiplier.1winavia
 
 [![Click
-here](https://readscoops.com/wp-content/uploads/2023/03/Readscoop-aviator-1-1.jpg)](https://traff.sbs/deff)\
+here](https://static-pp.1win-cdn.com/promo-files-uploads/VOJu_pbXyCjLVA170FA_MhKrF8gaX8p769DqJ3goyCGimBUhSPdZetRDmTa2ApxXslfSVEVD0ww0K3oWMEfDZw0nvv04C1Dgm6-i.jpg)](https://traff.sbs/1winavia)\
 [?? Download APK ?? Download APK ?? Download
-APK](https://traff.sbs/deff)
+APK](https://traff.sbs/1winavia)
 
 ## How to Play 1win Aviator
 
